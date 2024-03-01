@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NThuesen
 - 👀 I’m interested in going to the gym, studying and playing Golf/Videogames
 - 🌱 I’m currently learning computer engineering at INSPER
-- 💞️ I’m notlooking to collaborate on the moment
+- 💞️ I’m not looking to collaborate on the moment
 - 📫 How to reach me nicholasthuesen083@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: there's no fun in my life ;-; (nah jk) I just can't think of one XD 
