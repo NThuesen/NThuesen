@@ -4,7 +4,6 @@
 - 💞️ I’m not looking to collaborate on the moment
 - 📫 How to reach me nicholasthuesen083@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: there's no fun in my life ;-; (nah jk) I just can't think of one XD 
 
 <!---
 NThuesen/NThuesen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
